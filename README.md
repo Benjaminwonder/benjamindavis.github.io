@@ -1,2 +1,2 @@
 # Benjaminwonder.github.io
-A deep dive into my research interests and projects raging from finished to prospective
+A deep dive into my research interests and projects ranging from finished to prospective
